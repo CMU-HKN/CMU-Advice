@@ -13,6 +13,8 @@ In a difficult spot, need some more perspective on your decisions? This guide is
 - Classes to Take
 - Partying
 - Greek Life
+- Grad School
+  - [A good read by Dr. Mor Harchol-Balter about considering a PhD](https://www.cs.cmu.edu/~harchol/gradschooltalk.pdf)
 
 ## Additional Resources
 
