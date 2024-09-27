@@ -20,4 +20,4 @@ In a difficult spot, need some more perspective on your decisions? This guide is
 
 ## Disclaimer
 
-This is not official advice from CMU. These are anecdotal and circumstantial advice, so it is still your responsibility to try them out on your own and be reasonable. And taking the advice here does not guarantee automatic success.
+This is not official advice from CMU. These are anecdotal and circumstantial advice, so it is still your responsibility to try them out on your own and be reasonable. And taking the advice here does not guarantee success.
