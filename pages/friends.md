@@ -19,7 +19,7 @@ And, let's say you do want those things. There are 2 ways to achieve it:
 If you want to be a Mean Girl but don't wear Pink on Wednesdays, the latter makes a lot more sense, and you will probably see less issues.
 
 Some friends are temporary, and _that's ok_. The notoriously emphemeral friend group is the partying one.
-Think about this, partying is already a high energy activity. Like top sports player, being a hardcore partyer is not something you can maintain for a long time, unles you devote your entire life to it. If you want to be the Lebron James of partying, go for it. But most people will drop out for various reasons. Maybe they find a girl, maybe they are just tired. Maybe they get bored, things aren't as fun as they used to be. etc. etc.
+Think about this, partying is already a high energy activity. Like top sports player, being a hardcore partyer is not something you can maintain for a long time, unless you devote your entire life to it. If you want to be the Lebron James of partying, go for it. But most people will drop out for various reasons. Maybe they find a girl, maybe they are just tired. Maybe they get bored, things aren't as fun as they used to be. etc. etc.
 
 ## The boomer advice
 
